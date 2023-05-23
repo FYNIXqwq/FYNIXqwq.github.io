@@ -1,0 +1,2 @@
+# FYNIXqwq.github.io
+blog
